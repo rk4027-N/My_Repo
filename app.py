@@ -1,2 +1,4 @@
-how r u:
-Have a Great day
+how r u
+Good Morining!
+Thank you
+
