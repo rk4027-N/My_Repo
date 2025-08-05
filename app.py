@@ -1,1 +1,3 @@
-how r u:
+how r u
+Good Morining!
+Thank you
